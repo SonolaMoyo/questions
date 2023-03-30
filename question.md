@@ -1,1 +1,1 @@
-What are the major feature chatgpt offer?
+What is chrome?
